@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Altora
 - 👀 I’m interested with our galaxy
-- 🌱 I’m currently learning nis
+- 🌱 I’m currently learning deustch and kazakh
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
